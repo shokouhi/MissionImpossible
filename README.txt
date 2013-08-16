@@ -1,0 +1,1 @@
+Going Crazy. A 10-page paper in 10 days.
